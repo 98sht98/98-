@@ -6,24 +6,18 @@
 
 作者搭建好的98堂自动签到平台：（更新时间2023年11月）
 
-自动签到平台地址：https://98sht.homes/
-
-推荐使用Google浏览器或者Firefox浏览器
-98堂邀请码、色花堂邀请码购买：https://98sht.homes/
-98堂(原色花堂)邀请码专卖店:https://98sht.homes
-98堂(原色花堂)邀请码专卖店1:https://www.98sht.homes
-98堂(原色花堂)邀请码专卖店2:https://www.98sht.homes
-98堂(原色花堂)邀请码专卖店3:https://98sht.lol
-98堂(原色花堂)邀请码专卖店4:https://98sht.monster
-98堂(原色花堂)邀请码专卖店5:https://98sht.pics
-98堂(原色花堂)邀请码专卖店6:https://98sht.beauty
-98堂(原色花堂)邀请码专卖店7:https://98sht.quest
-98堂(原色花堂)邀请码专卖店8:https://98sht.online
-98堂(原色花堂)邀请码专卖店9:https://www.98sht.lat
-98堂(原色花堂)邀请码专卖店10:https://www.98sht.lol
-98堂(原色花堂)邀请码专卖店11:https://www.98sht.monster
-98堂(原色花堂)邀请码专卖店12:https://www.98sht.pics
-98堂(原色花堂)邀请码专卖店13:https://www.98sht.beauty
-98堂(原色花堂)邀请码专卖店14:https://www.98sht.quest
-98堂(原色花堂)邀请码专卖店15:https://www.98sht.online
-
+98tang 98堂 色花堂 sehuatang 98堂邀请码 色花堂邀请码
+98堂(原色花堂)邀请码专卖店<a href="https://www.98sht.fun/" target="_blank">98sht.fun←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98sht.buzz/" target="_blank">98sht.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98sht.top/" target="_blank">98t.top←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98t.buzz/" target="_blank">98t.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.2988v.buzzz/" target="_blank">2988v.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98vip.buzz/" target="_blank">98vip.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98m.buzz/" target="_blank">98m.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98a.buzz/" target="_blank">98a.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.98tang.buzz/" target="_blank">98tang.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.sehuatang.buzz/" target="_blank">sehuatang.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.aesh.buzz/" target="_blank">aesh.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.yqm98.buzz/" target="_blank">yqm98.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.yqmvip.buzz/" target="_blank">yqmvip.buzz←点击下单</a>
+98堂(原色花堂)邀请码专卖店<a href="https://www.2988s.com/" target="_blank">2988s.com←点击下单</a>
